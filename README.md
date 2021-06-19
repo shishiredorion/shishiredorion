@@ -15,8 +15,6 @@ In the coming days, I will try to contribute to the open source community.
 
 Other community accounts:  
 [Zhihu](https://www.zhihu.com/people/shi-zi-xi-hu-hong)  
-[Newcoder](https://www.nowcoder.com/profile/600023347)  
 
 其他社区账号:  
 [知乎](https://www.zhihu.com/people/shi-zi-xi-hu-hong)  
-[牛客](https://www.nowcoder.com/profile/600023347)  
