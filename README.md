@@ -14,7 +14,7 @@ In the coming days, I will try to contribute to the open source community.
 在接下来的日子，我将努力为开源社区做出自己的贡献。
 
 Other community accounts:  
-[Zhihu](https://www.zhihu.com/people/shi-zi-xi-hu-hong)  
+[Zhihu](https://www.zhihu.com/people/shishiredorion)  
 
 其他社区账号:  
-[知乎](https://www.zhihu.com/people/shi-zi-xi-hu-hong)  
+[知乎](https://www.zhihu.com/people/shishiredorion)  
